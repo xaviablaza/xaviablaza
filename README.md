@@ -1,4 +1,6 @@
 # Xavi Ablaza—@xaviablaza
-Hi, I'm Xavi!
+May God have mercy on my enemies, because I won't.
+<img src="https://www.galeriejoaquin.com/images/paintings_big/QFFR-07.jpg"/>
 
-<img src="https://media1.tenor.com/m/eFWg68USeZgAAAAd/computer-hacker-fallout.gif"/>
+Tolerance is virtue, until intolerance becomes duty.
+<img src="https://pbs.twimg.com/media/EcAgaukUYAEVr_w.jpg"/>
