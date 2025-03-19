@@ -2,6 +2,14 @@
 
 > It was early morning, and as all of the other students stood exercising, I sat atop this cloud and simply watched.” Po’s expression did not change. “So you dream of mastery?” He ushered me over to the exercise floor. **“Only practice breeds mastery, not dreams.”**
 
+## The Secrets of Yoga Fire
+<details>
+  <summary>My flame is but an illusion, but it will burn you if you believe it to be real.</summary>
+  <img src="https://github.com/user-attachments/assets/47359a68-775d-43ab-a397-9894134222c9" height="500px"/>
+
+Dhalsim's Yoga Fire isn't real flames. It's just an aura that allows him to fight.
+</details>
+
 ## The Cursed or The Tolerant
 <details>
   <summary>Tolerance is virtue, until intolerance becomes duty.</summary>
